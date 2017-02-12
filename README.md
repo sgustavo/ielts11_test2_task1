@@ -1,1 +1,1 @@
-![http://pasteboard.co/xjXdkxfDM.jpg](http://pasteboard.co/xjXdkxfDM.jpg)
+![](http://imgh.us/Screenshot_67.jpg)
